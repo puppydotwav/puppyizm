@@ -1,6 +1,7 @@
 ## look over here
 
 https://puppyizm.straw.page/
+![tumblr_ac58013c4f0764d707ab5ef0d01d0644_7efd3550_100](https://github.com/user-attachments/assets/092f424a-2511-43af-92ec-abf64a647cf4)
 
 <!--
 **puppyizm/puppyizm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
